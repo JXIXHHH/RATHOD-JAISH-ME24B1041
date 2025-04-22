@@ -1,2 +1,0 @@
-# RATHOD-JAISH-ME24B1041
-EDSA Assignment
